@@ -7,6 +7,6 @@
 
 **My email is: lixiaolong8088888@gmail.com**
 
-**Telegram: @LD_EPYC
+**Telegram: @LD_EPYC**
 
 **Welcome to contact me about any tech Q/A!**
